@@ -1,6 +1,6 @@
 I live to work and work to live
 -Repos currently unavail-
-=-+👋+
+
 If you know, keep it on the down-lo, no distractions while our domain needs building.
 #doitletsdoit
 
